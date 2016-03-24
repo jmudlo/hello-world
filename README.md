@@ -1,5 +1,7 @@
 # hello-world
 
-Hey hoes!
+Hey fellow females!
 
-Jol here and i love eating booty! But the girls gotta be fine tho ;-)
+disregard my last commit as my hamster hacked my github account!
+
+Thanks again, love ya!
