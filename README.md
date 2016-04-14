@@ -1,6 +1,6 @@
 # hello-world
 
-Hey fellow females!
+Sup guys,
 
 disregard my last commit as my hamster hacked my github account!
 
